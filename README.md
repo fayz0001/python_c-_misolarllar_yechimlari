@@ -1,0 +1,1 @@
+# python_c-_misolarllar_yechimlari
